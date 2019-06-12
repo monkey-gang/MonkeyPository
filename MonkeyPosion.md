@@ -9,3 +9,31 @@
 
 -={ see no evil }={ hear no evil }={ speak no evil }={ have no fun }=-
 ```
+
+
+```
+
+                      __------__
+                    /~          ~\
+                   |    //^\//^\|         Oh..My great god ...     
+                 /~~\  ||  o| |o|:~\       Please grant me many many
+                | |6   ||___|_|_||:|    /  bananas .. I want to give them
+                 \__.  /      o  \/'       to my dear Mary, then she will
+                  |   (       O   )        agree to marry me!!
+         /~~~~\    `\  \         /
+        | |~~\ |     )  ~------~`\
+       /' |  | |   /     ____ /~~~)\
+      (_/'   | | |     /'    |    ( |
+             | | |     \    /   __)/ \
+             \  \ \      \/    /' \   `\
+               \  \|\        /   | |\___|
+                 \ |  \____/     | |
+                 /^~>  \        _/ <
+                |  |         \       \
+                |  | \        \        \
+                -^-\  \       |        )
+                     `\_______/^\______/
+
+
+
+```
